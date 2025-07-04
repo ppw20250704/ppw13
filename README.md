@@ -15,4 +15,4 @@
 
 站内每天自动同步更新最新番号，确保你第一时间看到最新发布的日本AV内容。同时支持用户评分与评论功能，帮助更多用户发现优质影片。如果你正在寻找一个安全、稳定、内容全面且永久免费的平台，这里将是你的最佳选择。收藏本站，轻松畅享日本AV带来的视觉盛宴，随时随地，想看就看。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/ppw20250704/ppw13 ）</span>
